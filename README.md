@@ -48,3 +48,10 @@ Sumathi | Data Analyst 📊
 **Sumathi Selvakumar**  
 📧 Email: sumathikh19@gmail.com  
 🔗 LinkedIn: https://www.linkedin.com/in/sumathi-selvakumar-65230888/
+
+---
+
+## 📬 Contact
+**Sumathi Selvakumar**  
+📧 Email: sumathikh19@gmail.com  
+🔗 LinkedIn: https://www.linkedin.com/in/sumathi-selvakumar-65230888/
