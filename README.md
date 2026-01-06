@@ -40,4 +40,11 @@ It helps stakeholders understand revenue trends and identify growth opportunitie
 ---
 
 ## 🙋‍♂️ About Me
-Kamal | Data Analyst 📊
+Sumathi | Data Analyst 📊
+
+---
+
+## 📬 Contact
+**Sumathi Selvakumar**  
+📧 Email: sumathikh19@gmail.com  
+🔗 LinkedIn: https://www.linkedin.com/in/sumathi-selvakumar-65230888/
